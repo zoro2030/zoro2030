@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @zoro2030
+- 👋 Hi, I’m @Zoro
 - 👀 I’m interested in Anime, Games
 - 🌱 I’m currently learning Computer ER. 
-- 💞️ I’m looking to collaborate on .......
+- 💞️ I’m looking to collab with swordswoman
 - 📫 How to reach me just ignore it
 
 <!---
