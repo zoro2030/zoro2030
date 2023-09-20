@@ -2,6 +2,7 @@
 - 👀 I’m interested in Anime, Games
 - 🌱 I’m currently learning Computer ER. 
 - 💞️ I’m looking to collab with swordswoman
+- 🤩 Highly Motivated by Captain Price
 - 📫 How to reach me just ignore it
 
 <!---
