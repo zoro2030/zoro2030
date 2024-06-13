@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collab with swordswoman
 - 🤩 Highly Motivated by Captain Price
 - 📫 How to reach me just ignore it
-- 👨‍🎓️ for mor info visit: https://github.com/avadhut2003.git
+- 👨‍🎓️ for mor info visit: https://github.com/avadhut2003
 
 <!---
 zoro2030/zoro2030 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
