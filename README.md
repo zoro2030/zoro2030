@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zoro
 - 👀 I’m interested in Anime, Games
 - 🌱 I’m currently learning Computer ER. 
-- 💞️ I’m looking to collab with swordswoman
+- 💞️ In search of the one
 - 🤩 Highly Motivated by Captain Price
 - 📫 How to reach me just ignore it
 - 👨‍🎓️ for more info visit: https://github.com/avadhut2003
